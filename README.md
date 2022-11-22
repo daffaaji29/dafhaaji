@@ -7,8 +7,8 @@
 ## **About me**
 
 - 👋 **Hi, I’m [@dafhaaji](https://t.me/dafhaaji)**
-- ✨ **19** years old
+- ✨ **19 years old**
 - 🏠 **Living in *[City of Madiun, East Java, Indonesia](https://en.m.wikipedia.org/wiki/Madiun)***
 
 
-- 🗿 **idc. and don't forget to coffee**
+- 🗿 **idc about this, and don't forget to coffee**
